@@ -1,0 +1,2 @@
+# irvocntc
+Tredenex Vision AI Oversikt 2025 - Det ingen forteller deg!
